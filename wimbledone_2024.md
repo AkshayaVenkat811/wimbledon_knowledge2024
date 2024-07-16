@@ -37,7 +37,7 @@ JULY 14, 2024 21:12
 Summary - Alcaraz wins 6-2, 6-2, 7-6
 Dominating win by the 21-year-old Spaniard. Alcaraz has defended his title in some fashion. Djokovic was out of answers throughout the match. Only in some moments did one could see Djokovic as we know him. But today was about Alcaraz who kept Djokovic on the backfoot and kept entertaining the crowd with some absolutely brilliant returns. 
 
-#JULY 14, 2024 21:00#
+#JULY 14, 2024 21:00
 THIRD SET: Tie break
 2-1: Good rally but Djokovic return can’t clear the net. Alcaraz ahead. 
 
